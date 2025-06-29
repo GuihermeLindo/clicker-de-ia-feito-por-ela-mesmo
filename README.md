@@ -1,0 +1,1 @@
+# clicker-de-ia-feito-por-ela-mesmo
